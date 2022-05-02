@@ -1,2 +1,2 @@
-- 👋 Hi, I’m JackyLi
+- 👋 Hi, I’m Jacky Li.
 - 💞️ I’m looking to collaborate on .
